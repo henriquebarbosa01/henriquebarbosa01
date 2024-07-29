@@ -1,5 +1,5 @@
 ## seja bem vindo mestre 👋
-
+![](https://media1.tenor.com/m/cvi5SF0zZI0AAAAd/%D1%87%D0%B5%D1%80%D0%BD%D1%8B%D0%B9.gif)
 <!--
 **henriquebarbosa01/henriquebarbosa01** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
